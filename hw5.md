@@ -1,0 +1,1 @@
+[AI對話](https://chatgpt.com/share/68e650f8-9b30-8008-8091-ee37897873b3)
